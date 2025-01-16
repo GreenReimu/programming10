@@ -143,4 +143,4 @@ This was edited using a remote lets gooo it finally worked i had to download lik
 %%@@@%#**#######@@%+++++++++++++++++++++**+++***+++++++++++++++++++====+================+++++*@@@@@@
 %%@%%#*#%######%@*+++++++++++++++++++*++***++*++++++++++++++++++++++=====================+++*@@@@@@@
 
-Mr Tam out lord and saviour
+Mr Tam our lord and saviour
